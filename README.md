@@ -6,5 +6,3 @@ I will not eat them in a moat
 I will not eat them here nor there
 I will not eat them anywhere
 
-
-
